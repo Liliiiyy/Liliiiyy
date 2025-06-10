@@ -1,5 +1,5 @@
-## Hi there 👋
+
+![muse-dash-kawaii](https://github.com/user-attachments/assets/fa459ea6-20c5-45c6-b00c-73a382bfff89)
 
 
-![Image](https://github.com/user-attachments/assets/ce928c44-d40c-40d9-8856-17c53c270243)
 
